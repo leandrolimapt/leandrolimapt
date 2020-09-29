@@ -1,4 +1,4 @@
-## Hi there, my name is Leandro!
+## Hi there, my name is Leandro! 👋
 
 
 ##### Here you can learn more about me:
